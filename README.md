@@ -1,1 +1,1 @@
-ranga gadi tho dammu tey carrom board adi chupe
+ranga gadi tho dammu tey carroms adi chupe
